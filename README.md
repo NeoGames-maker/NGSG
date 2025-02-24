@@ -1,0 +1,1 @@
+https://ngsg.neocities.org
